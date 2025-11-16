@@ -15,11 +15,11 @@ hello ! i primarily go by the name edward !..
 
    『 ♡ 』.『 ♡ 』.『 ♡ 』.『 ♡ 』    ;   people im often seen around !!! lovely oomfs and friends hehe .. basically lovemail !!!! 
 
-    ྀི◟   <3   JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  
+ ྀི◟   <3   JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  
 
-     ྀི◟    💌   NICK / MADDOX !! my best friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh 
+ྀི◟    💌   NICK / MADDOX !! my best friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh 
 
-     ྀི◟    💚   RUE / BEA !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly /p  THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo
+ྀི◟    💚   RUE / BEA !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly /p  THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo
   𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔 ₊˚
   
 
