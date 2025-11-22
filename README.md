@@ -8,7 +8,7 @@ hello ! i primarily go by the name edward !..
                   
 ╰  ⌒ ꔫ  ◟            ◞◟                 ⌒◞                      
                                                                                                                                                                                     
-˗ˏˋ    doubles .... iwec  , we maay be standoff-ish or just ignore you , apologies ! no hard feelings at all , we are just not very comfortable with doubles .                  
+˗ˏˋ    doubles .... iwec  , we maay be standoff-ish or just ignore you , apologies ! no hard feelings at all ,  just not very comfortable with doubles .                  
                                                                                                                                                                                  
   
  𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔
