@@ -5,7 +5,7 @@
 
 
 
- 　　  　hello ! i primarily go by the name edward !..  but i also am 100 % okay with being called glinda    :  galinda  !  [ pls pls pls pls pls ]
+　hello ! i primarily go by the name edward !..  but i also am 100 % okay with being called glinda    :  galinda  !  [ pls pls pls pls pls ]
 
 
 
