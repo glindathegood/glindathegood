@@ -8,6 +8,8 @@
 
  　　  　hello ! i primarily go by the name edward !..  but i also am 100 % okay with being called glinda    :  galinda  !  [ pls pls pls pls pls ]
 
+<img width="2048" height="179" alt="tumblr_4658a40dba05ff65e6cff9011bd334c8_34f82fd9_2048" src="https://github.com/user-attachments/assets/dbad2dbb-c8d1-43be-931c-25346a39e4fa" /><img width="2048" height="179" alt="tumblr_4658a40dba05ff65e6cff9011bd334c8_34f82fd9_2048" src="https://github.com/user-attachments/assets/dbad2dbb-c8d1-43be-931c-25346a39e4fa" />
+
 
  　　  　　 　. ♡    dating the most lovely person ever !! my boyfriend .. heh i love you jon !!!  :  1 / 15 / 24 : <3
 
