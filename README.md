@@ -21,17 +21,18 @@
 
 『 ♡ 』.『 ♡ 』.『 ♡ 』.『 ♡ 』    ;   　　  　　  people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
 
- 　　　 ྀི◟   <3   JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  
+ 　　　 ྀི◟ JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  
 
- 　　　ྀི◟    💌   NICK / MADDOX !! my best friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh 
+ 　　　 ྀི◟ NICK / MADDOX !! my best friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh 
 
- 　　　ྀི◟    💚   RUE / BEA !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly /p  THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo
-
+ 　　　 ྀི◟ RUE / BEA !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo
+    
+ 　　　 ྀི◟ JG !! sily guy ..... close omofie i love you so much ! iiloovooeeoeoeeee you! you are so fun to chat with love you kitty !
 
 <img width="400" height="52" alt="tumblr_6c5aede09381092b5a72a5a40de490da_e81cc486_400" src="https://github.com/user-attachments/assets/afd8291a-048b-4c9b-9292-593d2c0abc3b" /><img width="400" height="52" alt="tumblr_6c5aede09381092b5a72a5a40de490da_e81cc486_400" src="https://github.com/user-attachments/assets/afd8291a-048b-4c9b-9292-593d2c0abc3b" />
   
 
- 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　　  　　 　 　　  　　 　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　　  　　 　 　　  　᧔ 　　 　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  　 ᧓
 
  　　  　　 　　  　　 　　  　　  　　    ₊˚
 <img width="2048" height="179" alt="tumblr_4658a40dba05ff65e6cff9011bd334c8_34f82fd9_2048" src="https://github.com/user-attachments/assets/dbad2dbb-c8d1-43be-931c-25346a39e4fa" />
