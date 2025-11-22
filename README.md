@@ -6,7 +6,7 @@
  　　  　　 　　  　　 　　  　　  　　![tumblr_b0fbda729a11f522977305fef34f7bb4_e705cf2a_100](https://github.com/user-attachments/assets/f57dd426-01f4-4364-951a-2a03bb5c4e09)
 
 
- 　　  　　 　　  　　 　hello ! i primarily go by the name edward !..
+ 　　  　　 　　  　　 　hello ! i primarily go by the name edward !..  but i also am 100 % okay with being called glinda    :  galinda  !  [ pls pls pls pls pls ]
 
 
  　　  　　 　. ♡    dating the most lovely person ever !! my boyfriend .. heh i love you jon !!!  :  1 / 15 / 24 : <3
