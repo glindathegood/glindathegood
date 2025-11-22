@@ -19,13 +19,13 @@
   
 <img width="400" height="52" alt="tumblr_6c5aede09381092b5a72a5a40de490da_e81cc486_400" src="https://github.com/user-attachments/assets/afd8291a-048b-4c9b-9292-593d2c0abc3b" /><img width="400" height="52" alt="tumblr_6c5aede09381092b5a72a5a40de490da_e81cc486_400" src="https://github.com/user-attachments/assets/afd8291a-048b-4c9b-9292-593d2c0abc3b" />
 
-『 ♡ 』.『 ♡ 』.『 ♡ 』.『 ♡ 』    ;   　　  　　  people im often seen around !!! lovely oomfs and friends hehe .. basically lovemail !!!! 
+『 ♡ 』.『 ♡ 』.『 ♡ 』.『 ♡ 』    ;   　　  　　  people im often seen around !!! lovely oomfs and friends hehe .. lovemail !!
 
- 　　  　　 　　  　 ྀི◟   <3   JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  
+ 　　　 ྀི◟   <3   JONATHAN !!! EEK MY BOYFRIEND !!! love him dearly, .... hes mentioned in my bio !!! go check him out hes super cool :-3  
 
- 　　  　　 　　  　ྀི◟    💌   NICK / MADDOX !! my best friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh 
+ 　　　ྀི◟    💌   NICK / MADDOX !! my best friend eever .....nick im going to GET YOU ./silly . anyways hessuper cool too he is also mentioned on my page !! super awesome mad scientist glazer... heh 
 
- 　　  　　 　　  　ྀི◟    💚   RUE / BEA !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly /p  THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo
+ 　　　ྀི◟    💚   RUE / BEA !!! hehe elphie irl ... thats them ... mmylovely friend i love you dearly /p  THANANLK YOU FOR OUR CHATS HEHE YOU ARE SO COOL AND I LOVE yuo
 
 
 <img width="400" height="52" alt="tumblr_6c5aede09381092b5a72a5a40de490da_e81cc486_400" src="https://github.com/user-attachments/assets/afd8291a-048b-4c9b-9292-593d2c0abc3b" /><img width="400" height="52" alt="tumblr_6c5aede09381092b5a72a5a40de490da_e81cc486_400" src="https://github.com/user-attachments/assets/afd8291a-048b-4c9b-9292-593d2c0abc3b" />
