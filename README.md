@@ -34,5 +34,9 @@
 
  　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　  　　 　 　　　  　　 　 　　  　᧔ 　　 　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  　 ᧓
 
+ 　　 　 　　 　　 　　 　　 　　 　　　![image](https://github.com/user-attachments/assets/688bab2e-6ab4-4989-97cd-5337aa3a312c)
+
+ 　　 　　 　　 　 　　 　　 　　 　　 　　 　　　hi rue ok ? hello elpihe ilov ey uo hi . ok ? /p
+
  　　  　　 　　  　　 　　  　　  　　    ₊˚
 <img width="2048" height="179" alt="tumblr_4658a40dba05ff65e6cff9011bd334c8_34f82fd9_2048" src="https://github.com/user-attachments/assets/dbad2dbb-c8d1-43be-931c-25346a39e4fa" />
