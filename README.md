@@ -17,17 +17,21 @@
                   
   　　　   　　　   　　　⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
                                                                                                                                                                                     
- ˗ˏˋ    doubles .... iwec  ,  maay be standoff-ish or just ignore you , apologies ! no hard feelings at all ,  just not very comfortable with doubles .                  
+
+ 
+<details> <summary>᧔ෆ᧓</summary>
+   doubles .... iwec  ,  maay be standoff-ish or just ignore you , apologies ! no hard feelings at all ,  just not very comfortable with doubles .                  
                                                                                                                                                                                  
   
+</details></p>
 
 
 
-
-
+<details> <summary>♡    my  elphie  ..</summary>
+  
  　　 　 　　 　　 　　 　　 　　 　　　![image](https://github.com/user-attachments/assets/688bab2e-6ab4-4989-97cd-5337aa3a312c)
 
- 　　 　　 　　 　 　　 　　 『 ♡ 』　　 　hi rue ok ? hello elpihe ilov ey uo hi . ok ? /p     ₊˚
-　 　　 　　 　　 　　 　　 　　 　　 　　 　[corrin page thiing i did .. smile!](https://goeswellwithgreen.straw.page/)
+ 　　 　　 　　 　 　　 　　 『 ♡ 』　　 　hi corrin . . . hello elpihe ilov ey uo hi . ok ? /p     ₊˚
+　 　　 　　 　　 　　 　 　　 　　 　　 　[corrin page thiing i did .. smile!](https://goeswellwithgreen.straw.page/)
 
-
+</details></p>
