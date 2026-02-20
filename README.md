@@ -6,6 +6,11 @@
 
   　　　   　　　   　　　⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
 
+.
+                                　　　 　　 　　　 　　 　　　 　⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀[main](https://github.com/riddledbatz)⠀⠀ 　 ![tumblr_3443d282e1bbf2115021445057754968_5f142c02_75](https://github.com/user-attachments/assets/86c0f946-375f-4b0f-92dc-e208e07d2fa9)⠀⠀ 　 [atabook](https://riddledbatz.atabook.org/)
+
+
+
  　　  　　 　 　　  　　 　 　𐑂 ♡ hello fellow ozians  !     　　  　　 　
 
 　 　　 　 　　  　　 　　 　 　　  　　 　　　 　 　　  . ♡      1 / 15 / 24     <   jonathan  . . 3
@@ -24,6 +29,7 @@
                                                                                                                                                                                  
   
 </details></p>
+
 
 
 
