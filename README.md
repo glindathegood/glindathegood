@@ -35,7 +35,8 @@
 
 <details> <summary>♡    my  elphie  ..</summary>
   
- 　　 　 　　 　　 　　 　　 　　 　　　![image](https://github.com/user-attachments/assets/688bab2e-6ab4-4989-97cd-5337aa3a312c)
+ 　　 　 　　 　　 　　 　　 　　 　　　![image](https://github.com/user-attachments/assets/688bab2e-6ab4-4989-97cd-5337aa3a312c)  <img width="187" height="175" alt="image" src="https://github.com/user-attachments/assets/a710e99d-3f67-4395-b1b4-b744f9e407f3" />
+
 
  　　 　　 　　 　 　　 　　 『 ♡ 』　　 　hi corrin . . . hello elpihe ilov ey uo hi . ok ? /p     ₊˚
 　 　　 　　 　　 　　 　 　　 　　 　　 　[corrin page thiing i did .. smile!](https://goeswellwithgreen.straw.page/)
