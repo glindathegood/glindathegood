@@ -39,6 +39,6 @@
 
 
  　　 　　 　　 　 　　 　　 『 ♡ 』　　 　hi corrin . . . hello elpihe ilov ey uo hi . ok ? /p     ₊˚
-　 　　 　　 　　 　　 　 　　 　　 　　 　[corrin page thiing i did .. smile!](https://goeswellwithgreen.straw.page/)
+　 　　 　　 　　 　　 　 　　 　　 　　 　[corrin page thiing i did .. smile!](https://goeswellwithgreen.straw.page/)     rue page number [TWO](https://handprintonmyheartt.straw.page/)
 
 </details></p>
