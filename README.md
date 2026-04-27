@@ -4,11 +4,11 @@
  
   　　 ![1000035835-removebg-preview](https://github.com/user-attachments/assets/d364ee58-054f-498b-b3d0-7339f933d212)
 
-  　　　   　　　   　　　⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
+  　　　   　　　   　　　⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰  ![tumblr_3443d282e1bbf2115021445057754968_5f142c02_75](https://github.com/user-attachments/assets/86c0f946-375f-4b0f-92dc-e208e07d2fa9)
+꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔     
 
 .
-                                　　　 　　 　　　 　　 　　　 　⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀[main](https://github.com/riddledbatz)⠀⠀ 　 ![tumblr_3443d282e1bbf2115021445057754968_5f142c02_75](https://github.com/user-attachments/assets/86c0f946-375f-4b0f-92dc-e208e07d2fa9)⠀⠀ 　 [atabook](https://riddledbatz.atabook.org/)
-
+                                　　　 　　 　　　 　　 　　　 　⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 　
 
 
  　　  　　 　 　　  　　 　 　𐑂 ♡ hello fellow ozians  !     　　  　　 　
