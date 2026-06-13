@@ -9,13 +9,13 @@
 
 
 
- 　　   　　 　　          ♡ 　goodness knows the wicked die alone   !
+ 　　   　　 　　          ♡ 　𝗀𝗈𝗈𝖽𝗇𝖾𝗌𝗌 𝗄𝗇𝗈𝗐𝗌 𝗍𝗁𝖾 𝗐𝗂𝖼𝗄𝖾𝖽 𝖽𝗂𝖾 𝖺𝗅𝗈𝗇𝖾   !
 <p align="center">
 <img width="250" height="250" alt="tumblr_c975d2167d360a11d44556d5a391f112_8fc375c0_250" src="https://github.com/user-attachments/assets/75301720-cf8f-4aa2-8570-1212c056b1fe" />
   </p>　　　 　　　   　  　
-　　 　　   　　⎯⎯͟͟　⏖ 　　 　     ꒰ <img width="20" height="20" alt="tumblr_4d9e1af40cbdfe99dabcca2089053ebe_763c6e47_75" src="https://github.com/user-attachments/assets/7d540fe1-48b3-4e56-8802-5a479052cc1c" /> ꒱      ㅤ꯭ㅤ 𓏴
+　　 　　   　　⎯⎯͟͟　⏖ 　　𝖼𝗁𝖾𝖼𝗄 𝗌𝗍𝗋𝖺𝗐     ꒰ <img width="20" height="20" alt="tumblr_4d9e1af40cbdfe99dabcca2089053ebe_763c6e47_75" src="https://github.com/user-attachments/assets/7d540fe1-48b3-4e56-8802-5a479052cc1c" /> ꒱      ㅤ꯭ㅤ 𓏴
 
- 　　   　　 　　          ♡    　my house is on pretty girl ave !
+ 　　   　　 　　          ♡    　𝗆𝗒 𝗁𝗈𝗎𝗌𝖾 𝗂𝗌 𝗈𝗇 𝗉𝗋𝖾𝗍𝗍𝗒 𝗀𝗂𝗋𝗅 𝖺𝗏𝖾 !
                      
 　   　 　　 　　 　   　　 　 　　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
