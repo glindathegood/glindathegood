@@ -4,7 +4,7 @@
 
   　　　   　　　   　　 　 　
 <p align="center">$\color{#ffbb81}{\textsf{♪ 𓂅𓈒 ˖   𓈒𓏶 }}$</p>   
-   　　      　　      　　     　　 　꒰  <img width="20" height="20" alt="tumblr_e6bbf5f49c4538d3ad19f7e179ab939d_9dd4d68b_75" src="https://github.com/user-attachments/assets/a86c8fb6-b913-4456-968c-40ad188ac96d" />
+   　　      　　      　　     　꒰  <img width="20" height="20" alt="tumblr_e6bbf5f49c4538d3ad19f7e179ab939d_9dd4d68b_75" src="https://github.com/user-attachments/assets/a86c8fb6-b913-4456-968c-40ad188ac96d" />
 <img width="20" height="20" alt="tumblr_3d7b4ffcb340957c2ab2bac8dbc0923b_b36d757a_75" src="https://github.com/user-attachments/assets/1bc40ed3-7bcb-4b72-ac2a-c1564ab09d66" />
   ꒱ 　　　   　　　   　
 
