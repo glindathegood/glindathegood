@@ -9,12 +9,12 @@
 
 
 
- 　　   　　 　　   　 　　   　　 　　　♡   ilysmelphie  !
+ 　　   　　 　　   　 　　   　　 　　　♡   i lob my party   !
 
 　　   　　　　  　　   　　　　   　　　 <img width="99" height="56" alt="tumblr_2f2edec609d753e800e0481d97a02263_20794078_100" src="https://github.com/user-attachments/assets/e4686b61-fa42-4b8a-8441-9fe6e93723bb" />
 
   
-　　 　　   　　　 　　 　　  　⎯⎯͟͟♥︎̼　⏖ 　　 　[1](https://goeswellwithgreen.straw.page/)   ꒰ <img width="20" height="20" alt="tumblr_4d9e1af40cbdfe99dabcca2089053ebe_763c6e47_75" src="https://github.com/user-attachments/assets/7d540fe1-48b3-4e56-8802-5a479052cc1c" /> ꒱   [2](https://handprintonmyheartt.straw.page/)    ㅤ꯭ㅤ 𓏴
+　　 　　   　　　 　　　⎯⎯͟͟　⏖ 　　 　intfreely    ꒰ <img width="20" height="20" alt="tumblr_4d9e1af40cbdfe99dabcca2089053ebe_763c6e47_75" src="https://github.com/user-attachments/assets/7d540fe1-48b3-4e56-8802-5a479052cc1c" /> ꒱   ex-friends dni !    ㅤ꯭ㅤ 𓏴
 
 
 　   　 　　 　　 　   　　 　 　　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
