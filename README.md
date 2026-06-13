@@ -9,7 +9,7 @@
 
 
 
- 　　   　　 　　   　 　　   　　 　　　♡   i lob my party   !
+ 　　   　　 　　   　 　　   　　 　　　♡  goodness knows the wicked die alone   !
 
 　　   　　　　  　　   　　　　   　　　 <img width="99" height="56" alt="tumblr_2f2edec609d753e800e0481d97a02263_20794078_100" src="https://github.com/user-attachments/assets/e4686b61-fa42-4b8a-8441-9fe6e93723bb" />
 
