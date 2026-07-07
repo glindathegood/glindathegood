@@ -19,6 +19,8 @@
   ꒰ <img width="20" height="20" alt="tumblr_4d9e1af40cbdfe99dabcca2089053ebe_763c6e47_75" src="https://github.com/user-attachments/assets/7d540fe1-48b3-4e56-8802-5a479052cc1c" /> ꒱      ㅤ꯭ㅤ 𓏴</p>
 
 <p align="center">$\color{#e6bba6}{\textsf{♡    　𝗆𝗒 𝗁𝗈𝗎𝗌𝖾 𝗂𝗌 𝗈𝗇 𝗉𝗋𝖾𝗍𝗍𝗒 𝗀𝗂𝗋𝗅 𝖺𝗏𝖾 !}}$</p>
+
+ 　　 　　  　　 　　 　　 　　　　 　　 　　 　　[1](https://goeswellwithgreen.straw.page/)   .  [2](https://handprintonmyheartt.straw.page/)  .  [3](https://eelllpphiiieeeeeeee.straw.page/)
                      
 　   　 　　 　　 　   　　   　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
