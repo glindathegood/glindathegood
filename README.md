@@ -5,7 +5,7 @@
 
 
                                                     
-<img src="https://github.com/user-attachments/assets/f2afcdea-a813-4e54-a13e-d598fb30e0f8" width="100" alt="Logo">
+[ ♡](https://fluffle.cc/thegoodwitch)    <img src="https://github.com/user-attachments/assets/f2afcdea-a813-4e54-a13e-d598fb30e0f8" width="100" alt="Logo">
 
                                  gαℓιη∂α 　 ,  　ℓily 　  𓂅𓈒 ˖ gℓιη∂α  𓈒𓏶 　 ♡
 
