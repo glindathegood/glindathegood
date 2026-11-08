@@ -9,7 +9,7 @@
 
                                  gαℓιη∂α 　 ,  　ℓily 　  𓂅𓈒 ˖ gℓιη∂α  𓈒𓏶 　 ♡
 
-                               she ㅤ  𓈒 ꒪   her̲   (´ ω ` )  ㅤ  ㅤ     ![](https://komarev.com/ghpvc/?username=glindathegood&color=ffad7b&label=♡♡♡&base=138)
+                               she ㅤ  𓈒 ꒪   her̲   (´ ω ` )  ㅤ  ㅤ     ![](https://komarev.com/ghpvc/?username=glindathegood&color=EAD3D6&label=♡♡♡&base=138)
 
 
 <br/><br>
