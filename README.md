@@ -10,7 +10,7 @@
                                  gαℓιη∂α 　 ,  　ℓily 　  𓂅𓈒 ˖ gℓιη∂α  𓈒𓏶 　 ♡
 
                                she ㅤ  𓈒 ꒪   her̲   (´ ω ` )  ㅤ  ㅤ     ![](https://komarev.com/ghpvc/?username=glindathegood&color=EAD3D6&label=♡♡♡&base=138)
-
+                    [♡](https://goeswellwithgreen.straw.page/)  [♡](https://handprintonmyheartt.straw.page/)  [♡](https://eelllpphiiieeeeeeee.straw.page/) 
 
 <br/><br>
 
